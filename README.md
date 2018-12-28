@@ -1,2 +1,2 @@
-# Namaste-I-see-you
+# Namasté - I see you ♡
 welcome
